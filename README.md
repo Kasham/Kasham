@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning data visualisations and statistics
 - 👯 I’m looking to collaborate on data or AI related projects
 - 🤔 I’m looking for help with nothing for now..
-- 📫 How to reach me: PatienceDogara@outlook.com
+- 📫 How to reach me: kayceetrust@gmail.com
 - 😄 Pronouns: SHE/HER
 - ⚡ Fun fact: I love playing Computer Games
 
